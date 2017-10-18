@@ -1,2 +1,79 @@
 # London Photographic Scavenger Hunt
 This repo is just a dumping ground for a (hopefully) fun photographic scavenger hunt I dragged my 11yr old and wife out on
+
+
+## Get a photograph of one of your fellow scavengers in front or with the following:
+For every photo, you will receive 50p, a bonus 50p is available for added comedy or educational value in the photograph
+- [ ] The London Eye
+- [ ] A Queens Guard
+- [ ] Big Ben
+- [ ] A Black Cab
+- [ ] Banksy graffiti
+- [ ] Red postbox
+- [ ] A busker at a tube station
+- [ ] A double decker bus
+- [ ] The most stupid piece of art in the Tate modern
+- [ ] A sign that says "Keep Calm And Carry On"
+- [ ] Something with a Union Jack Flag on it
+- [ ] A warship moored in the Thames
+- [ ] A bendy tube train
+- [ ] A chinese dragon
+- [ ] A red telephone box
+- [ ] At least 10 pigeons
+- [ ] Peter Pan
+- [ ] The Tardis
+- [ ] A canon
+- [ ] Where Sherlock holmes lived
+- [ ] Platform 9 and 3/4
+- [ ] The oldest pub in London
+- [ ] A horse drawn carriage
+- [ ] One of your team planking
+- [ ] A bowler hat
+- [ ] A tea cup/pot
+- [ ] Your team name (you can use multiple photos)
+- [ ] A sleeping policeman
+- [ ] Someone doing a cartwheel
+- [ ] Someone doing a headstand or handstand
+- [ ] A peculiar dog
+- [ ] Eating something delicious
+- [ ] "I can't believe we all fit in here"
+- [ ] Spoons hanging off a nose
+- [ ] Posing like a mannequin in a shop window
+- [ ] Jumping in mid air
+- [ ] An ornate door knocker
+- [ ] A person walking an animal thats not a dog
+- [ ] A merry-go-round
+- [ ] Something that begins with Z
+- [ ] One of your team doing exactly what a sign says
+- [ ] A water fountain
+- [ ] The Shard
+- [ ] Piccadilly Circus
+- [ ] A street performer
+- [ ] The rolling bridge
+- [ ] 10 Downing (Adam) street
+- [ ] A nose of soho
+- [ ] An ear of covent garden
+- [ ] A pet cemetery
+- [ ] St. Martin's Window, Trafalgar Square
+- [ ] Britain's smallest police station
+- [ ] A statue of a cat
+- [ ] A space invader
+- [ ] A pelican
+- [ ] A barge
+- [ ] A cobbled mews
+- [ ] A lily
+- [ ] A gas street light
+- [ ] A monster supply store
+- [ ] A trafic light tree
+- [ ] The first coffee house in london
+- [ ] A tube train on a roof
+- [ ] A blue plaque
+- [ ] Paddington bear
+- [ ] A mice sculpture
+- [ ] A golden boy
+- [ ] Tower bridge chimney
+- [ ] A lion
+- [ ] Winston Churchill
+- [ ] Nelson Mandela
+- [ ] Nelson's Column
+- [ ] A golden statue
