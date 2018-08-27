@@ -77,3 +77,16 @@ For every photo, you will receive 50p, a bonus 50p is available for added comedy
 - [ ] Nelson Mandela
 - [ ] Nelson's Column
 - [ ] A golden statue
+- [ ] A statue of an American President
+- [ ] one of you wearing a uniform
+- [ ] Giving a stranger a piggyback
+- [ ] Conduct an excercise video, see if you can get strangers to join
+- [ ] On public transport, but not touching the floor
+- [ ] Reflection in something other than a mirrror
+- [ ] Impersonate a statue, with the statue in the background
+- [ ] Sherlock Holmes home
+- [ ] Where time starts (GMT)
+- [ ] A historic sailing ship
+- [ ] A tudor hut
+- [ ] A police coat hook
+- [ ] A section of the London Wall
